@@ -10,6 +10,6 @@
 
 **Director**: Kim Yoon-jin
 
-## Praised for its realistic portrayal of modern relationships and career challenges faced by youth.
+### Praised for its realistic portrayal of modern relationships and career challenges faced by youth.
 
-## Achieved popularity and solid viewership ratings during its run.
+### Achieved popularity and solid viewership ratings during its run.
